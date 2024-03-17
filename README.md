@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Filemonbessa THE GALAXY LORD 
-- 👀 I’m interested in CONQUER EVERYTHING
+- 👀 I’m interested in CONQUER EVERYTHING IN THE UNIVERSE
 - 🌱 I’m currently learning MASSIVE DESTRUCTION 
 - 💞️ I’m looking to collaborate on DESTROY MY ENEMIES
 - 📫 How to reach me SENDING A BILLION DOLLARS
